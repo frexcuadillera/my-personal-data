@@ -8,5 +8,7 @@
 
 **STEAM:** https://steamcommunity.com/id/54V6
 
+**Facebook:** https://facebook.com/fcuadillera
+
 [STEAM ACCOUNT]: <https://steamcommunity.com/id/54V6>
 [2016CUAD01]: <https://www.worldcubeassociation.org/persons/2016CUAD01>
