@@ -10,6 +10,8 @@
 
 **Facebook:** https://facebook.com/fcuadillera
 
+**Twitter:** https://twitter.com/Frex24
+
 **Ultimate GUitar:** http://profile.ultimate-guitar.com/Frex%20Cuadillera/
 
 [STEAM ACCOUNT]: <https://steamcommunity.com/id/54V6>
