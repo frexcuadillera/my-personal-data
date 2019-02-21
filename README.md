@@ -14,5 +14,7 @@
 
 **Ultimate GUitar:** http://profile.ultimate-guitar.com/Frex%20Cuadillera/
 
+**KnowYourMeme:** https://knowyourmeme.com/users/frex
+
 [STEAM ACCOUNT]: <https://steamcommunity.com/id/54V6>
 [2016CUAD01]: <https://www.worldcubeassociation.org/persons/2016CUAD01>
