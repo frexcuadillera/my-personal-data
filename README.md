@@ -4,16 +4,16 @@
 
 **E-mail:** fcuadillera@gmail.com
 
-**WCA ID**: [2016CUAD01]
-
-**STEAM:** https://steamcommunity.com/id/54V6
-
 **Facebook:** https://facebook.com/fcuadillera
-
-**Twitter:** https://twitter.com/Frex24
-
-**Ultimate GUitar:** http://profile.ultimate-guitar.com/Frex%20Cuadillera/
 
 **KnowYourMeme:** https://knowyourmeme.com/users/frex
 
-[2016CUAD01]: <https://www.worldcubeassociation.org/persons/2016CUAD01>
+**osu!:** https://osu.ppy.sh/users/8868701
+
+**STEAM:** https://steamcommunity.com/id/54V6
+
+**Twitter:** https://twitter.com/Frex24
+
+**Ultimate Guitar:** http://profile.ultimate-guitar.com/Frex%20Cuadillera/
+
+**World Cube Association**: https://www.worldcubeassociation.org/persons/2016CUAD01
