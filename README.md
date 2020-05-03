@@ -4,6 +4,8 @@
 
 **E-mail:** fcuadillera@gmail.com
 
+**Discord:** Frex #8109
+
 **Facebook:** https://facebook.com/fcuadillera
 
 **KnowYourMeme:** https://knowyourmeme.com/users/frex
